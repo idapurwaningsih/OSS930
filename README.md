@@ -1,2 +1,2 @@
 # OSS930
-Kuliah Menyenangkan
+Kuliah Menyenangkan idaaaaaaa
